@@ -1,1 +1,1 @@
-# Aryanshu-Parida-
+Hello This is Aryanshu, I am a Junior Developer/Coder.I have a Youtube channel also do visit https://www.youtube.com/channel/UCOc7eOaxp8VkPhysni75qlg/videos This is the Link. You use this site for Educational Purpose. Copyright By Aryanshu Parida. Thank You. 
